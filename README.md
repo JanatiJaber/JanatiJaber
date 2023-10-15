@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JanatiJaber
 - 👀 I’m interested in World Sec
-- 🌱 I’m currently learning about many
+- 🌱 I’m currently learning about many things
 - 💞️ I’m looking to collaborate on my duty
 - 📫 How to reach me by mail me first
 
